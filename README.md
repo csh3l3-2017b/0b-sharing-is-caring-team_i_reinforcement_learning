@@ -5,5 +5,5 @@
 Anggota kelompok
 Bastomy 1301178418
 Elang Mardhana 1301178153
-Jahtra genio muhammad 1301178162
+Jahtra Genio Muhammad 1301178162
 
